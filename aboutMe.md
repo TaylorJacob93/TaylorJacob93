@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TaylorJacob93
+- 👀 I’m interested in football, completing the world & drinking coffee
+-Dislikes: MUshrooms and anything mushroom related
+-Favourite Quote: “Get busy living or get busy dying.”
+-GitHub Profile URL: https://github.com/TaylorJacob93
